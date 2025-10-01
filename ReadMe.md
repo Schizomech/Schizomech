@@ -10,3 +10,5 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=Schizomech&icon=0&color=0)](https://visitcount.itsvg.in)
 
+<img src="![CreepRadioheadGIF](https://github.com/user-attachments/assets/f8305eaf-d70d-4807-a553-0964adcdcc26)
+" width="40" height="40" />
